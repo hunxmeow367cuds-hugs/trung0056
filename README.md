@@ -18,6 +18,7 @@ hunx / meo / mew / hongngocj / moonlightt / zoni >;v.
   =🔆💫-gender:lesbian or straight ^^!!
 
   =🔆💫birthday: secret ( June 11, 2015) --im very young, but that doesn't matter!!-- .v -(┬┬﹏┬┬)
+  -🔆💫hobbies: drawing , paint and talk with you ^^~~ let`s hugg ✪ ω ✪
 
 
     ﹉﹉﹉﹉﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉﹉﹉﹉
@@ -37,6 +38,6 @@ hunx / meo / mew / hongngocj / moonlightt / zoni >;v.
   
   [💫 roblox user ( im only play;forsaken,dandy world or catalog avt , anyy ,^-^ ):mewnekk_zoni (hunxmixithanhhoa)
   
-  (((o(*ﾟ▽ﾟ*)o)))[    THE ENDD ,THANK YOU FOR READING MY INTRODUCTION>,<.   ]*^____^*
+  (((o(*ﾟ▽ﾟ*)o)))[    THE ENDD ,THANK YOU FOR READING MY INTRODUCTION >,<.   ]*^____^*
 
   
