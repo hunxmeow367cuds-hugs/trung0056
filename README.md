@@ -7,7 +7,7 @@ hunx / meo / mew / hongngocj / moonlightt / zoni >;v.
   
   `(*>﹏<*)′-🔆💫- my name or call : hunx /hongngocj^^ (my name irl..)~~~///(^v^)\\\~~~
 
-  =🔆💫-gender:lesbiannn:3 or straight ^^!!
+  =🔆💫-gender:lesbian or straight ^^!!
 
   =🔆💫birthday: secret ( June 11, 2015) --im very young, but that doesn't matter!!-- .v -(┬┬﹏┬┬)
 
@@ -21,9 +21,9 @@ hunx / meo / mew / hongngocj / moonlightt / zoni >;v.
 
   💫[my fav ship dw !! fruitcake , flowermoon , visionshell , squrimflutter , brighttisha .]💫
   
-  [ !!💫i always jst play/online roblox or pony town --🔆🔆]c+h free and i luv hug (pliz hug meee!!) dnc my style,;; !!you want, you can just copy color it and not claim it as your own!!!><] 
+  [ !!💫i always jst play/online roblox or pony town --🔆🔆] [c+h free and i luv hug (pliz hug meee!!) dnc my style,;; !!you want, you can just copy color it and not claim it as your own!!!><] 
 
-   🥹[Iam very friendly to talk to.cuz im a little girl:3] 🥹
+   🥹[Iam very friendly to talk to .cuz im a little/hurt girl:3] [If I'm in Pony Town and I use a "..." at the end of a sentence, it means I'm going through something very sad.] [, plz comfort me..] 🥹
    
   `′[im very relaxed and often afk/off-tab.+if You can send me a whis when you see me!!+;]φ(゜▽゜*)♪ 
   
