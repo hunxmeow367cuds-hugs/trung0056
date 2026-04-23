@@ -17,8 +17,11 @@ hunx / meo / mew / hongngocj / moonlightt / zoni >;v.
 
   =🔆💫-gender:lesbian or straight ^^!!
 
-  =🔆💫birthday: secret ( June 11, 2015) --im very young, but that doesn't matter!!-- .v -(┬┬﹏┬┬)
+  =🔆💫birthday: secret ( June 11, 2015) --im very young, but that doesn't matter!!-- .v -(┬┬﹏┬┬) 
+  
   -🔆💫hobbies: drawing , paint and talk with you ^^~~ let`s hugg ✪ ω ✪
+  
+  -💫🔆plz don't say hurtful things to me... cuzz that will make me cry !!>,<
 
 
     ﹉﹉﹉﹉﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉﹉﹉﹉
