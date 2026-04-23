@@ -11,7 +11,7 @@ hunx / meo / mew / hongngocj / moonlightt / zoni >;v.
 <img width="467" height="706" alt="image" src="https://github.com/user-attachments/assets/b99212ba-9c3c-45da-8bfb-e3bef7094030" />
 
 
--------------!>.< @ Can I introduce myself? @ ;[]----------------------
+-------------[****]!>.< @ Can I introduce myself? @ ;[****]----------------------
   
   `(*>﹏<*)′-🔆💫- my name or call : hunx /hongngocj^^ (my name irl..)~~~///(^v^)\\\~~~
 
@@ -23,20 +23,20 @@ hunx / meo / mew / hongngocj / moonlightt / zoni >;v.
     ﹉﹉﹉﹉﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉﹉﹉﹉
 
     
-  [fandom:dandy world , forsaken , phighting , genshin impact , multifandom.. blalblablbla] ヾ(≧▽≦*)ship any character and i will support,respect your ship!!☆( •̀ ω •́ )✧
+  [ fandom:dandy world , forsaken , phighting , genshin impact , multifandom.. blalblablbla] ヾ(≧▽≦*)ship any character and i will support,respect your ship!!☆( •̀ ω •́ )✧
 
-  ❤️[my fav ship fsk !! adminviruss , azutime , buidlertela , paycheck , elliordued1 , voidbuger , 666cola .]'❤️
+  ❤️[ my fav ship fsk !! adminviruss , azutime , buidlertela , paycheck , elliordued1 , voidbuger , 666cola .404x1optaph . [MY OC X TAPH]'❤️
 
-  💫[my fav ship dw !! fruitcake , flowermoon , visionshell , squrimflutter , brighttisha .]💫
+  💫[ my fav ship dw !! fruitcake , flowermoon , visionshell , squrimflutter , brighttisha . ]💫
   
   [ !!💫i always jst play/online roblox or pony town --🔆🔆] [c+h free and i luv hug (pliz hug meee!!) dnc my style,;; !!you want, you can just copy color it and not claim it as your own!!!><] 
 
-   🥹[Iam very friendly to talk to .cuz im a little/hurt girl:3] [If I'm in Pony Town and I use a "..." at the end of a sentence, it means I'm going through something very sad.] [, plz comfort me..] 🥹
+   🥹[ im very friendly to talk to .cuz im a little/hurt girl:3] [If I'm in Pony Town and I use a "..." at the end of a sentence, it means I'm going through something very sad.] [, plz comfort me..] 🥹
    
-  `′[im very relaxed and often afk/off-tab.+if You can send me a whis when you see me!!+;]φ(゜▽゜*)♪ 
+  `′[ im very relaxed and often afk/off-tab.+if You can send me a whis when you see me!!+;]φ(゜▽゜*)♪ [i love cat^^]
   
-  [💫roblox user ( im only play;forsaken,dandy world or catalog avt , anyy ,^-^ ):mewnekk_zoni (hunxmixithanhhoa)
+  [💫 roblox user ( im only play;forsaken,dandy world or catalog avt , anyy ,^-^ ):mewnekk_zoni (hunxmixithanhhoa)
   
-  (((o(*ﾟ▽ﾟ*)o)))[THE ENDD ,THANK YOU FOR READING MY INTRODUCTION>,<.]*^____^*
+  (((o(*ﾟ▽ﾟ*)o)))[    THE ENDD ,THANK YOU FOR READING MY INTRODUCTION>,<.   ]*^____^*
 
   
