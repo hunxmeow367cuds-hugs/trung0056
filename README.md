@@ -34,7 +34,7 @@ hunx / meo / mew / hongngocj / moonlightt / zoni >;v.
 
    🥹[ im very friendly to talk to .cuz im a little/hurt girl:3] [If I'm in Pony Town and I use a "..." at the end of a sentence, it means I'm going through something very sad.] [, plz comfort me..] 🥹
    
-  `′[ im very relaxed and often afk/off-tab.+if You can send me a whis when you see me!!+;]φ(゜▽゜*)♪ [i love cat^^]
+  `′[ im very relaxed and often afk/off-tab.+if You can send me a whis when you see me!!+;]φ(゜▽゜*)♪ [i love any cat @.@/ i hate my life,myself, so can I just die? ^^]
   
   [💫 roblox user ( im only play;forsaken,dandy world or catalog avt , anyy ,^-^ ):mewnekk_zoni (hunxmixithanhhoa)
   
