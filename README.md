@@ -28,7 +28,7 @@ hunx / meo / mew / hongngocj / moonlightt / zoni >;v.
 
   ❤️[ my fav ship fsk !! adminviruss , azutime , buidlertela , paycheck , elliordued1 , voidbuger , 666cola .404x1optaph . [MY OC X TAPH]'❤️
 
-  💫[ my fav ship dw !! fruitcake , flowermoon , visionshell , squrimflutter , brighttisha . ]💫
+  💫[ my fav ship dw !! fruitcake , flowermoon , visionshell , squrimflutter , brighttisha , bassiecocoa , bobetteginger . ]💫
   
   [ !!💫i always jst play/online roblox or pony town --🔆🔆] [c+h free and i luv hug (pliz hug meee!!) dnc my style,;; !!you want, you can just copy color it and not claim it as your own!!!><] 
 
