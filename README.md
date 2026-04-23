@@ -9,20 +9,26 @@ hunx / meo / mew / hongngocj / moonlightt / zoni >;v.
 
   =🔆💫-gender:lesbiannn:3 or straight ^^!!
 
-  =🔆💫birthday: secret ( June 11, 2015)im very young, but that doesn't matter!! .v -(┬┬﹏┬┬)
+  =🔆💫birthday: secret ( June 11, 2015) --im very young, but that doesn't matter!!-- .v -(┬┬﹏┬┬)
 
 
     ﹉﹉﹉﹉﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉﹉﹉﹉
 
     
   [fandom:dandy world , forsaken , phighting , genshin impact , multifandom.. blalblablbla] ヾ(≧▽≦*)ship any character and i will support,respect your ship!!☆( •̀ ω •́ )✧
+
+  ❤️[my fav ship fsk !! adminviruss , azutime , buidlertela , paycheck , elliordued1 , voidbuger , 666cola .]'❤️
+
+  💫[my fav ship dw !! fruitcake , flowermoon , visionshell , squrimflutter , brighttisha .]💫
   
-  [ !!💫i always jst play/online roblox or pony town --🔆🔆]c+h and dnc my style,;; !!you want, you can just copy color it and not claim it as your own!!!><] 
-  
+  [ !!💫i always jst play/online roblox or pony town --🔆🔆]c+h free and i luv hug (pliz hug meee!!) dnc my style,;; !!you want, you can just copy color it and not claim it as your own!!!><] 
+
+   🥹[Iam very friendly to talk to.cuz im a little girl:3] 🥹
+   
   `′[im very relaxed and often afk/off-tab.+if You can send me a whis when you see me!!+;]φ(゜▽゜*)♪ 
   
-  [💫roblox user ( im only play;forsaken,dandy world or catalog avt ,any game^-^ ):mewnekk_zoni (hunxmixithanhhoa)
+  [💫roblox user ( im only play;forsaken,dandy world or catalog avt , anyy ,^-^ ):mewnekk_zoni (hunxmixithanhhoa)
   
-  (((o(*ﾟ▽ﾟ*)o)))[here's my skin so you know.]*^____^*
-  <img width="533" height="795" alt="image" src="https://github.com/user-attachments/assets/44aa6337-5310-4f4b-9bd6-cf7280abab99" />
+  (((o(*ﾟ▽ﾟ*)o)))[THE ENDD ,THANK YOU FOR READING MY INTRODUCTION>,<.]*^____^*
+
   
