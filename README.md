@@ -21,8 +21,10 @@ hunx / meo / mew / hongngocj / moonlightt / zoni >;v.
   
   -🔆💫hobbies: drawing , paint and talk with you ^^~~ let`s hugg ✪ ω ✪
   
-  -💫🔆plz don't say hurtful things to me... cuzz that will make me cry !!>,<
-
+  -💫🔆plz don't say hurtful things to me... cuzz that will make me cry !!>,< 
+  
+ 🥹[ im very friendly to talk to .cuz im a little/hurt girl:3]  🥹 [If I'm in Pony Town and I use a "..." at the end of a sentence, it means I'm going through something very sad.] [, plz comfort me..] 🥹
+   
 
     ﹉﹉﹉﹉﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉﹉﹉﹉
 
@@ -35,8 +37,6 @@ hunx / meo / mew / hongngocj / moonlightt / zoni >;v.
   
   [ !!💫i always jst play/online roblox or pony town --🔆🔆] [c+h free and i luv hug (pliz hug meee!!) dnc my style,;; !!you want, you can just copy color it and not claim it as your own!!!><] 
 
-   🥹[ im very friendly to talk to .cuz im a little/hurt girl:3] [If I'm in Pony Town and I use a "..." at the end of a sentence, it means I'm going through something very sad.] [, plz comfort me..] 🥹
-   
   `′[ im very relaxed and often afk/off-tab.+if You can send me a whis when you see me!!+;]φ(゜▽゜*)♪ [i love any cat @.@/ i hate my life,myself, so can I just die? ^^]
   
   [💫 roblox user ( im only play;forsaken,dandy world or catalog avt , anyy ,^-^ ):mewnekk_zoni (hunxmixithanhhoa)
