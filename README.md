@@ -15,15 +15,21 @@ hunx / meo / mew / hongngocj / moonlightt / zoni >;v.
   
   `(*>﹏<*)′-🔆💫- my name or call : hunx /hongngocj^^ (my name irl..)~~~///(^v^)\\\~~~
 
-  =🔆💫-gender:lesbian or straight ^^!!
+  =🔆💫-[gender:lesbian or straight ^^!![
 
-  =🔆💫birthday: secret ( June 11, 2015) --im very young, but that doesn't matter!!-- .v -(┬┬﹏┬┬) 
+  =🔆💫[birthday: secret ( June 11, 2015) --im very young, but that doesn't matter!!-- .v -(┬┬﹏┬┬)]
   
-  -🔆💫hobbies: drawing , paint and talk with you ^^~~ let`s hugg ✪ ω ✪
+  -🔆💫[hobbies: drawing , paint and talk with you ^^~~ let`s hugg ✪ ω ✪]
+
+
+  ﹉﹉﹉﹉﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉﹉﹉﹉
+
   
-  -💫🔆plz don't say hurtful things to me... cuzz that will make me cry !!>,< 
+  -💫🔆[plz don't say hurtful things to me... cuzz that will make me cry !!>,< [and I'm a little childish, so please don't say anything that will hurt me!..]🥹
+
+  -💫🔆[I'm very annoying, so please don't hate me.] [you can confide in me,i will be here to listen.]🥹
   
- 🥹[ im very friendly to talk to .cuz im a little/hurt girl:3]  🥹 [If I'm in Pony Town and I use a "..." at the end of a sentence, it means I'm going through something very sad.] [, plz comfort me..] 🥹
+ -💫🔆🥹[ im very friendly to talk to .cuz im a little/hurt girl:3]  🥹 [If I'm in Pony Town and I use a "..." at the end of a sentence, it means I'm going through something very sad.] [, plz comfort me..] 🥹
    
 
     ﹉﹉﹉﹉﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉﹉﹉﹉
