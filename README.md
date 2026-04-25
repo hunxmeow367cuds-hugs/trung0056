@@ -35,11 +35,13 @@ hunx / meo / mew / hongngocj / moonlightt / zoni >;v.
     ﹉﹉﹉﹉﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉﹉﹉﹉
 
     
-  [ fandom:dandy world , forsaken , phighting , genshin impact , multifandom.. blalblablbla] ヾ(≧▽≦*)ship any character and i will support,respect your ship!!☆( •̀ ω •́ )✧
+  [ fandoms:dandy world , forsaken , phighting , genshin impact , multifandoms.. blalblablbla] ヾ(≧▽≦*)ship any character and i will support,respect your ship!!☆( •̀ ω •́ )✧
 
   ❤️[ my fav ship fsk !! adminviruss , azutime , buidlertela , paycheck , elliordued1 , voidbuger , 666cola .404x1optaph . [MY OC X TAPH]'❤️
 
-  💫[ my fav ship dw !! fruitcake , flowermoon , visionshell , squrimflutter , brighttisha , bassiecocoa , bobetteginger . ]💫
+  💫[ my fav ship dw !! fruitcake , flowermoon , visionshell , squrimflutter , brighttisha , bassiecocoa , bobetteginger . ]
+  
+  [😭 I HATE DARKSHIP/PROSHIP IN FANDOMs:DW,FSK, EVERY FANDOMS 😭]
   
   [ !!💫i always jst play/online roblox or pony town --🔆🔆] [c+h free and i luv hug (pliz hug meee!!) dnc my style,;; !!you want, you can just copy color it and not claim it as your own!!!><] 
 
