@@ -29,9 +29,9 @@ hunx / meo / mew / hongngocj / moonlightt / zoni >;v.
 
   -💫🔆[I'm very annoying, so please don't hate me.] [you can confide in me,i will be here to listen.]🥹
   
- -💫🔆🥹[ im very friendly to talk to .cuz im a little/hurt girl:3]  🥹 [If I'm in Pony Town and I use a "..." at the end of a sentence, it means I'm going through something very sad.] [, plz comfort me..] 🥹
-   
+ -💫🔆🥹[ im very friendly to talk to .cuz im a little/hurt girl:3] 🥹 [and im verry silly , stupid ] 🥹
 
+  -💫🔆[If I'm in Pony Town and I use a "..." at the end of a sentence, it means I'm going through something very sad.] [, plz comfort me..] 🥹
     ﹉﹉﹉﹉﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉﹉﹉﹉
 
     
