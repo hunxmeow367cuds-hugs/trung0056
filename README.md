@@ -48,7 +48,10 @@ hunx / meo / mew / hongngocj / moonlightt / zoni >;v.
   `′[ im very relaxed and often afk/off-tab.+if You can send me a whis when you see me!!+;]φ(゜▽゜*)♪ [i love any cat @.@/ i hate my life,myself, so can I just die? ^^]
   
   [💫 roblox user ( im only play;forsaken,dandy world or catalog avt , anyy ,^-^ ):mewnekk_zoni (hunxmixithanhhoa)
-  
-  (((o(*ﾟ▽ﾟ*)o)))[    THE ENDD ,THANK YOU FOR READING MY INTRODUCTION >,<.   ]*^____^*
+
+    <img width="1919" height="1075" alt="image" src="https://github.com/user-attachments/assets/b673b4d0-413b-4d8c-8b68-ca8d80a20925" />
+666noob><;
+
+  (((o(*ﾟ▽ﾟ*)o)))[    THE ENDD ,THANK YOU FOR READING MY INTRODUCTION >,<.   ]*^____^* 
 
   
