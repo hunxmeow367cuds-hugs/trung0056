@@ -29,7 +29,7 @@ hunx / meo / mew / hongngocj / moonlightt / zoni >;v.
 
   -💫🔆[I'm very annoying, so please don't hate me.] [you can confide in me,i will be here to listen.]🥹
   
- -💫🔆🥹[ im very friendly to talk to .cuz im a little/hurt girl:3] 🥹 [and im verry silly , stupid ] 🥹
+ -💫🔆🥹[ im very friendly to talk to .cuz im a little/hurt girl:3] 🥹 [and im verry silly , stupid , goofy ] 🥹
 
   -💫🔆[If I'm in Pony Town and I use a "..." at the end of a sentence, it means I'm going through something very sad.] [, plz comfort me..] 🥹
     ﹉﹉﹉﹉﹉﹉﹉﹉﹉୨♡୧﹉﹉﹉﹉﹉﹉﹉﹉
@@ -39,9 +39,9 @@ hunx / meo / mew / hongngocj / moonlightt / zoni >;v.
 
   ❤️[ my fav ship fsk !! adminviruss , azutime , buidlertela , paycheck , elliordued1 , voidbuger , 666cola .404x1optaph . [MY OC X TAPH]'❤️
 
-  💫[ my fav ship dw !! fruitcake , flowermoon , visionshell , squrimflutter , brighttisha , bassiecocoa , bobetteginger . ]
-  
-  [😭 I HATE DARKSHIP/PROSHIP IN FANDOMs:DW,FSK, EVERY FANDOMS 😭]
+  💫[ my fav ship dw !! fruitcake , flowermoon , visionshell , squrimflutter , brighttisha , bassiecocoa , bobetteginger ,goob x shrimpo(goob top). ballonbowl , ]
+
+  [😭 I HATE DARKSHIP/PROSHIP IN FANDOMs:DW,FSK, EVERY FANDOMS ],[DNIUF SHIPS = BUGERPIZZA , DOUBLEFEDORA AND ALL X VEER ,😭]
   
   [ !!💫i always jst play/online roblox or pony town --🔆🔆] [c+h free and i luv hug (pliz hug meee!!) dnc my style,;; !!you want, you can just copy color it and not claim it as your own!!!><] 
 
