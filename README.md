@@ -7,8 +7,11 @@ readme>:3
 hunx / meo / mew / hongngocj / moonlightt / zoni >;v.
 
 
+I LOVE PURESHADOW---MY GF AND ME
 
-<img width="467" height="706" alt="image" src="https://github.com/user-attachments/assets/b99212ba-9c3c-45da-8bfb-e3bef7094030" />
+
+<img width="270" height="180" alt="Screenshot 2026-05-17 143348" src="https://github.com/user-attachments/assets/e9d8e8fd-695b-4d11-b38d-2834a573ae22" />
+
 
 
 -------------[****]!>.< @ Can I introduce myself? @ ;[****]----------------------
